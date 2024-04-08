@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hi 👋 My name is Chaiwet Muito
 I'm based in Bangkok, Thailand<br>You can contact me at chaiwetmuito@gmail.com
 
 
